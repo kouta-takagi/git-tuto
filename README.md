@@ -1,3 +1,1 @@
-dokuzisuzi
-kakakakaka
-hirogarudokuzi
+anpanman
